@@ -1,4 +1,4 @@
-### Hi there 👋
+![discord](https://i.imgur.com/iK88XUQ.jpeg)
 
 <!--
 **BustR75/BustR75** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
